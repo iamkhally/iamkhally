@@ -1,4 +1,5 @@
 ## BLACKPINK BIGGEST GG 
+![https://images.app.goo.gl/dHNAYM1kUAXvkXWH9](link)
 
 <!--
 **iamkhally/iamkhally** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -14,4 +15,3 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-![https://images.app.goo.gl/dHNAYM1kUAXvkXWH9]
