@@ -1,5 +1,5 @@
 ## BLACKPINK BIGGEST GG 
-![https://images.app.goo.gl/dHNAYM1kUAXvkXWH9](link)
+![](https://media.tenor.com/R6bdm87tJ2oAAAAi/giselle-gisjam.gif)
 
 <!--
 **iamkhally/iamkhally** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
